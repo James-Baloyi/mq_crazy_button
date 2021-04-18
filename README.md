@@ -1,1 +1,1 @@
-# mq_crazy_button
+Please see the instructions included in the email.
